@@ -11,6 +11,7 @@ Check out my repositories to see my progress and the projects I'm working on. I�
 ## 📫 Let's Connect
 Feel free to reach out if you have any tips, project ideas, or just want to connect!
 
-- [LinkedIn](www.linkedin.com/in/garima-rajpal-14a42222b)
+- [LinkedIn](https://www.linkedin.com/in/garima-rajpal-14a42222b)
+
 
 Thank you for stopping by! 🌟
